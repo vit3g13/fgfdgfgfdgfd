@@ -1,1 +1,1 @@
-#Jsi piča dik za tvoje info i s ip adresou is lokací atd😎
+Tahle stránka nefunguje prosím zkuste kontaktovat cryptosell@gmail.com
